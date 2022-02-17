@@ -4,7 +4,7 @@ I'm Inyoung Eom, currently studying for a master's degree in Data eXperience Lab
 I'm interested in ML, NLP. I'd like to study user behavior experience and data analytics.
 
 ### Education
-## Sungkyunkwan Unversity 
+#### Sungkyunkwan Unversity 
 
 
 M.Sc. in Big Data
