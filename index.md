@@ -5,10 +5,14 @@ I'm interested in ML, NLP. I'd like to study user behavior experience and data a
 
 ### Education
 Sungkyunkwan Unversity
+
+
 M. Sc. in Big Data
 (Sep. 2020 - present)
 
 Sookmyung Womenn's University
+
+
 Bacher of Business & Real Estate
 (Mar. 2005 - Feb. 2010)
 
