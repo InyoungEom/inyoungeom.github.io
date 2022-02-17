@@ -36,11 +36,11 @@ Marketing, Website & SNS Management
 Marketing & PR 
 (May. 2015 - May. 2016)
 
-#### - Samsung Life Insurance
+- Samsung Life Insurance
 
 
 Marketing Education, Financial Consulting
-(Sep. 2008 - Dec. 2015)
+(Jul. 2008 - Dec. 2014)
 
 
 
