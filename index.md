@@ -4,13 +4,12 @@ I'm Inyoung Eom, currently studying for a master's degree in Data eXperience Lab
 I'm interested in ML, NLP. I'd like to study user behavior experience and data analytics.
 
 ### Education
-#### - Sungkyunkwan Unversity 
+- Sungkyunkwan Unversity 
 
 
 M.Sc. in Big Data
 (Sep. 2020 - present)
-
-#### - Sookmyung Womenn's University
+- Sookmyung Womenn's University
 
 
 Bacher of Business & Real Estate
@@ -18,19 +17,19 @@ Bacher of Business & Real Estate
 
 
 ### Career
-#### - Korea Data Agency
+- Korea Data Agency
 
 
 Mydata Business Support & PR
 (Mar. 2021 - Dec. 2021)
 
-#### - Seoul Children's Museum
+- Seoul Children's Museum
 
 
 Marketing, Website & SNS Management
 (May. 2016 - Oct. 2019)
 
-#### - Samsung Foundation
+- Samsung Foundation
 
 
 Marketing & PR 
