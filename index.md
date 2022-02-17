@@ -7,12 +7,12 @@ I'm interested in ML, NLP. I'd like to study user behavior experience and data a
 - Sungkyunkwan Unversity 
 
 
-M.Sc. in Big Data
+  M.Sc. in Big Data
 (Sep. 2020 - present)
 - Sookmyung Womenn's University
 
 
-Bacher of Business & Real Estate
+  Bacher of Business & Real Estate
 (Mar. 2005 - Feb. 2010)
 
 
@@ -20,25 +20,25 @@ Bacher of Business & Real Estate
 - Korea Data Agency
 
 
-Mydata Business Support & PR
+  Mydata Business Support & PR
 (Mar. 2021 - Dec. 2021)
 
 - Seoul Children's Museum
 
 
-Marketing, Website & SNS Management
+  Marketing, Website & SNS Management
 (May. 2016 - Oct. 2019)
 
 - Samsung Foundation
 
 
-Marketing & PR 
+  Marketing & PR 
 (May. 2015 - May. 2016)
 
 - Samsung Life Insurance
 
 
-Marketing Education, Financial Consulting
+  Marketing Education, Financial Consulting
 (Jul. 2008 - Dec. 2014)
 
 
