@@ -19,18 +19,26 @@ Bacher of Business & Real Estate
 
 ### Career
 Korea Data Agency
+
+
 Mydata Business Support & PR
 (Mar. 2021 - Dec. 2021)
 
 Seoul Children's Museum
+
+
 Marketing, Website & SNS Management
 (May. 2016 - Oct. 2019)
 
 Samsung Foundation
+
+
 Marketing & PR 
 (May. 2015 - May. 2016)
 
 Samsung Life Insurance
+
+
 Marketing Education, Financial Consulting
 (Sep. 2008 - Dec. 2015)
 
